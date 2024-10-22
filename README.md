@@ -45,6 +45,7 @@ d. Welingak website
 a. SMS  
 b. Olark chat conversation  
 5. When the lead origin is Lead add format.  
-6. When their current occupation is as a working professional.  
+6. When their current occupation is as a working professional.
+    
 Keeping these in mind the X Education can be very successful as they have a very high chance to 
 get almost all the potential leads to change their mind and join their courses. 
